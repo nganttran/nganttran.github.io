@@ -1,1 +1,1 @@
-I am Ngan Tran. Here is my portfolio. 
+I am Ngan Tran. Here is my portfolio. ✌🏻✊🏻✌🏻☝🏻
